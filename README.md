@@ -8,6 +8,9 @@ Email: luciane.horbatei@escola.pr.gov.br
 [Alura](https..//www.alura.com.br)
 
 
-![](https://media1.tenor.com/m/ncI0sG5fh-AAAAAC/happy-wednesday-feliz-quarta-feira.gif)
+
+![](https://media1.tenor.com/m/R1Zfi3L1aXMAAAAC/bom-dia-amandavrc.gif)
+
+
 
 -->
